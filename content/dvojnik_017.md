@@ -1,0 +1,285 @@
+---
+title: ""
+---
+
+13
+
+Vypadalo to, že počasí se změní k lepšímu.
+A opravdu, mraky sněhu postupně prořídly a nakonec přestalo sněžit.
+Prosvitla temná obloha a tu a tam zajiskřily hvězdy.
+Ale bylo mokro, blátivo a těžce se dýchalo, obzvlášť panu Goljadkinovi, který beztak sotva popadal dech.
+Z promočeného, ztěžklého pláště mu do všech údů pronikla jakási nepříjemně teplá vlhkost a zesláblé nohy se mu pod tou tíží podlamovaly.
+Roztřásla ho zimnice, po celém těle se mu rozlézali kousaví neodbytní mravenci, vysílením mu vyrazil ledový chorobný pot.
+Při té příležitosti dokonce pozapomněl pevně, energicky opakovat oblíbenou větu, že všecko se možná změní a obrátí k lepšímu.
+A vůbec, to ještě nic není, dodával náš statečný hrdina, neklesal na mysli, stíral si z obličeje krůpěje chladné vody, stékající ze střechy jeho kulatého a natolik promočeného klobouku, že se na ní už voda neudržela.
+Po těch slovech se pokusil přičapnout na poměrně silný špalek, který se válel vedle hromady dříví na dvoře u domu, kde bydlel Olsufij Ivanovič.
+Pochopitelně na španělské serenády a hedvábné žebříky neměl ani pomyšlení, ale přesto bylo zapotřebí uvažovat o nějakém tichém koutku, třebas nepříliš teplém, ale zato skrytém a útulném.
+Mimochodem řečeno, lákal ho koutek v síni Olsufije Ivanoviče, kde na počátku našeho pravdivého příběhu postával dvě hodiny mezi skříní a starými zástěnami, uprostřed všelijakého domácího harampádí, krámů a haraburdí.
+Háček byl v tom, že teď náš hrdina čekal ve zdejším dvoře už celé dvě hodiny.
+Ale zabydlet se v útulném koutku v síni nebylo tak snadné.
+Za prvé – zmíněné místo je nyní nepochybně střeženo a po skandálu na posledním plese byla přijata určitá opatření.
+A za druhé, náš pan Goljadkin čekal na nějaké znamení Kláry Olsufjevny, protože takové tajné znamení by mělo existovat.
+Tak se to přece dělávalo a „my nejsme první ani poslední“.
+Mimoděk si připomněl jakýsi román, který četl kdysi dávno, kde hrdinka vyslala ve stejné situaci Alfrédovi smluvené znamení, totiž jednoduše přivázala na okno růžovou stužku.
+Jenže růžová stužka teď v noci a v petrohradském podnebí, pověstném sychravostí a nespolehlivostí, nemohla být použita a prostě byla nemyslitelná.
+Ne, hedvábné žebříky nepřipadají v úvahu, přemítal náš hrdina, raději se uklidím stranou, abych byl nenápadný… stoupnu si sem… a zvolil si stanoviště za hranicí dříví přímo proti oknům.
+Po dvoře chodila spousta cizích lidí, vozků, jezdců, navíc tu hrčela kola, odfrkovali koně apod., ale přesto to bylo příhodné místo, ať už si ho někdo všimne nebo ne; výhoda byla přinejmenším v tom, že jeho nikdo neviděl, protože stál ve stínu, a naopak on viděl úplně všecko.
+Okna zářila – k Olsufiji Ivanoviči se zřejmě sjeli hosté při jakési slavnostní příležitosti, hudbu slyšet nebylo.
+To znamená, že tam nepořádají bál, ale pozvali si hosty z nějakého jiného důvodu, usuzoval v duchu náš hrdina, a zatrnulo mu u srdce.
+A vůbec, mělo to být dnes? blesklo mu hlavou.
+Není snad chyba v datu? Není to vyloučeno, nic není vyloučeno… Třeba byl dopis napsán včera, ale nedošel včas, protože se do toho zamíchal Petruška, dareba jeden! Nebo byl napsán zítra, vlastně co to… a všecko se mělo provést zítra, totiž čekat s kočárem… Náš hrdina celý ztuhl a sáhl do kapsy pro dopis, aby si všechno ověřil.
+Jenže k svému velkému překvapení zjistil, že dopis v kapse nemá.
+„Jak to?“ šeptl polomrtvý, „kde jsem ho jen nechal? Že bych ho ztratil? To by tak ještě scházelo!“ zasténal nakonec.
+„A co když se dostane do špatných rukou? Třeba už se to stalo! Panebože! Z toho bude taková mela… Ach, ty můj nelítostný osude!“ Roztřásl se jako list při myšlence, že jeho ničemný blíženec v okamžiku, kdy mu přetahoval plášť přes hlavu, vytáhl z kapsy dopis, o němž se dozvěděl, který vyčenichal u jeho nepřátel.
+Použije dopis jako důkaz… ano, důkaz! Když se vzpamatoval ze záchvatu hrůzy, která ho doslova ochromila, krev se mu nahrnula do hlavy.
+Rozpálenou hlavu v dlaních, sklesl se sténáním a skřípěním zubů na svůj špalek a pokoušel se soustředit… Jenomže myšlenky se mu rozutekly.
+Před ním se míhaly jakési tváře, hned jasně, hned matně si vybavoval jakési dávno zapomenuté příhody, v hlavě se mu zahnízdily melodie jakýchsi nejapných písní… Zmocnila se ho nepředstavitelná úzkost.
+Můj ty bože! Můj ty bože! opakoval si, když se trochu sebral, a potlačoval tlumený vzlykot, který se mu dral z prsou.
+Obdař mě pevnou myslí v mých nekonečných propastných strastech! Není nejmenší pochyby o tom, že jsem dočista ztracený, zničený – to všecko je v řádu věcí a nemůže to být jinak.
+Za prvé, přišel jsem o místo, jinak to nešlo… Dejme tomu, že se všecko nějak urovná.
+Pro začátek mi penze vystačí, pořídím si jiný byt, nábytek… A předně – Petrušku nechci.
+Obejdu se bez toho dareby… vezmu si podnájem.
+Můžu přijít a odejít, kdy se mi zlíbí, Petruška nebude vrčet, že jdu pozdě… tak je to… Podnájem je výhodný… Předpokládejme, že to je výhodné, ale o čem to mluvím? Ne o tom, o čem bych měl mluvit… Myšlenka na jeho nynější situaci ožila v paměti.
+Rozhlédl se. Můj ty bože! Můj ty bože! O čem to mluvím? pomyslel si zmateně a chytil se za rozpálenou hlavu…
+
+„Ráčíte už brzy odjet, milostpane?“ pronesl nad ním jakýsi hlas.
+Pan Goljadkin sebou škubl: před ním stál zkřehlý drožkář, promočený do poslední nitky – z dlouhé chvíle si zamanul nakouknout do Goljadkinova úkrytu.
+
+„Já nic, příteli… Už brzy pojedem, za chviličku… Jen počkej…“
+
+Drožkář odešel a něco si bručel pod nos.
+„Proč bručí?“ rozjímal v slzách náš hrdina.
+„Najal jsem ho na celý večer, a tak mám právo… ano, správně, na celý večer, a basta.
+I kdyby celý večer stál, nevadí.
+Všecko závisí na mně.
+Když budu chtít, pojedu, a když ne, nepojedu.
+A že tady teď stojím za hromadou dříví? Nevadí… nemá právo něco namítat.
+Prostě pán chce stát za hromadou dříví, a tak stojí… nechce nikoho připravit o čest… tak je to.
+Ano, milostivá slečno, abyste věděla.
+A v prosté chýši v naší době nikdo nebydlí.
+Tak je to, milostivá slečno! Bez morálky to v našem průmyslovém století nikdo nevyhraje, sama jste špatný příklad… Měl bych být přednostou a žít v prosté chýši na mořském břehu.
+Za prvé, milostivá slečno, na mořském břehu nejsou žádné úřady a za druhé, takhle bych to místo stejně nedostal.
+Dejme tomu, že bych si podal žádost, rád bych sloužil jako přednosta, ale… zachraňte mě před nepřítelem… Řeknu vám, milostivá slečno, přednostů je spousta a tady nejste u Francouzky Falbalové, kde jste se učila dobrým mravům, a teď sloužíte jako špatný příklad.
+Mravopočestnost, to znamená sedět doma, mít v úctě vlastního otce a předčasně nemyslet na ženichy.
+Až bude čas, však oni se najdou – tak je to! Bezpochyby je dobré leccos umět – jak by ne! Občas zahrát na piano, hovořit francouzsky, znát něco z dějepisu, zeměpisu, bible, aritmetiky – tak je to! – a to stačí! A pak vaření: každé slušné děvče by mělo umět vařit.
+Vaření by mělo patřit k její povinné výuce.
+A vy? Za prvé vás, moje krasavice, rodiče nepustí, a pošlou za vámi lidi, aby vás chytili.
+Potom vás budou držet pod dohledem a dají vás do kláštera.
+A co pak, milostivá slečno? Co si počnu? Poručíte mi snad, jak to bývá v hloupých románech, abych lezl na nejbližší kopec a rozplýval se v slzách, díval se na chladné zdi vašeho vězení a pak podle vzoru některých špatných německých poetů a romanopisců umřel? Tak si to představujete? Především, když dovolíte, vám přátelsky říkám, že to je výmysl, a za druhé, vy i vaši rodiče by zasluhovali pořádný výprask za to, že vám dávali číst francouzské romány, protože ty neučí ničemu dobrému, je v nich jed… ano, zhoubný jed! Nebo si snad myslíte, odpusťte, že se ptám –, že jen tak pro nic za nic beztrestně utečeme do prosté chýše na mořském břehu a budeme vrkat, rozmlouvat o našich citech a prožijeme celý život ve spokojenosti a štěstí? Pak si pořídíme pískle a myslíte si, že váš tatíček a státní rada Olsufij Ivanovič při té příležitosti odvolá svou kletbu a požehná manželskému páru? Omyl, slečno, to se nestává a především, žádné vrkání nebude, neračte si dělat naděje.
+Dneska je muž doma pánem a hodná, dobře vychovaná žena mu ve všem musí vyhovět.
+V našem průmyslovém století si na něžnosti nikdo nepotrpí – časy Jeana-Jacquesa Rousseaua už jsou za námi.
+Kupříkladu muž přichází hladový z práce a ptá se, nenašlo by se něco k snědku, dušinko, kousek slanečka a kalíšek vodky na zapití? A vy, milostivá slečno, byste měla mít po ruce slanečka i vodku.
+Muž dlabe, na vás se ani nepodívá a pak řekne: Běž do kuchyně, kotě, a dohlédni na oběd… A políbí ženušku tak jednou týdně a navíc chladně… Tak to u nás chodí, milostivá slečno, když se na to podíváme z druhé stránky… Chlad! A vůbec – co já? Co já s tím vším mám společného? Proč mě pletete do svých kapriců, milostivá slečno? Prý šlechetný člověče, který pro mě strádáš a jsi milý mému srdci a tak dále.
+Za prvé, moje milá slečno, sama víte, že se pro vás nehodím, neumím skládat poklony, ani sypat ze sebe všelijaké lichotky a hlouposti, nestrpím seladony a přiznávám, nemám zrovna ideální figuru.
+Chvástavost ani pokrytecký stud mi nejsou vlastní, to vám říkám rovnou, se vší upřímností.
+Pravda, mám přímou povahu a zdravý rozum, neintrikuju.
+Nejsem žádný intrikán a jsem na to hrdý – tak je to! Chodím mezi dobrými lidmi bez masky, a abych vám vypověděl všechno…“
+
+Najednou sebou pan Goljadkin škubl.
+Za hranicí dříví se znovu vynořil ryšavý zplihlý plnovous jeho vozky.
+
+„Hned přijdu, kamaráde.
+Hned to bude. Okamžíček,“ ozval se náš hrdina roztřeseným vysíleným hlasem.
+
+Drožkář se poškrábal na temeni, pohladil si plnovous, pokročil kupředu a nedůvěřivě pohlédl na svého zákazníka.
+
+„Už jdu, kamaráde… Vidíš… Trošku jsem… Poslyš, kamaráde, ještě chviličku… hned, hned to bude.“
+
+„A co když vůbec nikam nepojedete?“
+zeptal se nakonec vozka a odhodlaně k němu přistoupil.
+
+„Ne, kamaráde, pojedu.
+Jak vidíš, čekám tady…“
+
+„Ano, prosím…“
+
+„Poslyš, kamaráde… z kterépak pocházíš vesnice?“
+
+„Sloužím u pánů…“
+
+„A jsou ti tvoji páni hodní?“
+
+„Ujde to…“
+
+„Dobrá, kamaráde.
+Počkej tady. Už dlouho žiješ v Petrohradě?“
+
+„Celej rok už jezdím.“
+
+„A jsi spokojený?“
+
+„Ujde to.“
+
+„Dobrá, kamaráde.
+Děkuj pánubohu.
+Hodného člověka abys hledal ve dne s lucernou, kamaráde.
+Takový tě přijme, nakrmí, napojí… Ale někdy vidíš, že i zlatem prosakují slzy… vidíš politováníhodné příklady… Tak je to, kamaráde…“
+
+Drožkář zjihl, jako by mu bylo zákazníka líto.
+
+„S dovolením, já počkám.
+Bude to, prosím, dlouho trvat?“
+
+„Ne, můj milý.
+Já už tento… déle nebudu čekat.
+Co myslíš, kamaráde? Spoléhám na tebe.
+Už se mi nechce čekat…“
+
+„Takže nikam nepojedete?“
+
+„Ne, kamaráde, nepojedu.
+Ale tobě se odvděčím.
+Kolik ti dlužím?“
+
+„Jak jsme se domluvili, milostpane.
+Čekal jsem moc dlouho.
+Já vím, že mě neošidíte.“
+
+„Tumáš, kamaráde…“ Pan Goljadkin mu vysázel celých šest rublů ve stříbře a pevně odhodlaný, že nebude déle ztrácet čas a po dobrém odejde, tím spíš, že už je všecko rozhodnuto, drožkář odjel, a tudíž nemá na co čekat, opustil dvůr, vyšel za vrata, zahnul vlevo a pustil se do běhu – z radosti se neohlížel napravo ani nalevo.
+Možná že se všecko obrátí k lepšímu, myslel si, a já se vyhnu maléru.
+A opravdu, cítil, jak je mu nezvykle lehko na duši.
+Kéž by se to všecko obrátilo k lepšímu, mudroval, ale příliš tomu nevěřil.
+Já tento… uvažoval… Ne, takhle je to lepší, ale když to vezmeme z druhé strany… Nebo je to správné? V nejistotě hledal klíč k rozřešení všech svých pochybností, a tak doběhl až k Semjonovskému mostu.
+Tady rozumně a definitivně usoudil, že se vrátí.
+Tak to bude lepší, rozvažoval.
+Když to vezmu z druhé strany… Budu všechno zpovzdáli sledovat a basta.
+Pozorovatel je nestranná osoba.
+Kdyby něco – jsem jen pozorovatel, nemám s tím nic společného, a ať se stane cokoliv, já za nic nemůžu.
+To je ono! Tak to bude nejlepší.
+
+Splnil svoje předsevzetí tím spíš, že díky vlastnímu šťastnému nápadu se teď považoval za nezaujatého pozorovatele.
+Tak to bude lepší, přemítal, za nic nezodpovídám, uvidím, co se bude dít… a basta! Byla to nesporně správná úvaha.
+Uklidněn se znovu uchýlil do své tiché, pokojné skrýše a pozorně se zahleděl do oken.
+Tentokrát nečekal dlouho.
+
+Za okny rázem vypukl jakýsi podivný rozruch, zamíhaly se tam jakési postavy, rozhrnuly se závěsy a celý houf hostů se tísnil v oknech Olsufije Ivanoviče a všichni cosi vyhlíželi na dvoře.
+Chráněný hranicí dříví, náš hrdina jenom zvědavě sledoval ten rozruch a natahoval krk hned vpravo, hned vlevo, nakolik mu to jeho skrýš dovolovala.
+Vtom sebou škubl, strnul a div si hrůzou nedřepl na bobek.
+Cítil, prostě se dovtípil, že nevyhlížejí nic a nikoho jiného než právě jeho! Všichni se dívali směrem k němu a ukazovali na hranici dříví.
+Na útěk bylo pozdě – zahlédli by ho… Celý ztuhlý se přitiskl ke své ochranné hradbě a až teď si povšiml, že jeho vlastní stín ho zrazuje.
+Nejraději by se protáhl nějakou myší dírou mezi dřívím a nenápadně se skrčil.
+Ale to nešlo. V předsmrtné úzkosti odhodlaně pohlédl přímo do oken – tak to bylo lepší… Div se nepropadl hanbou: lidé v oknech ho zpozorovali, všichni na něj kývali, vybízeli ho, aby šel dovnitř.
+Otevřelo se několik větracích okének a pár hlasů cosi sborově volalo… „Divím se, že ty holky odmalička nevyplácejí rákoskou,“ mumlal si pro sebe zmateně náš hrdina.
+Nečekaně seběhl ze schodů on (víme, kdo), jenom v uniformě, bez klobouku, udýchaně poskakoval, cupital a vrtěl se a věrolomně dával najevo obrovskou radost, že ho vidí.
+
+„Vy, Jakove Petroviči?“ zaštěbetal ten nicotný člověk.
+„Tady nastydnete, je tu chladno.
+Račte dovnitř.“
+
+„Á, Jakov Petrovič! Ne, prosím, já jen…“
+zamrmlal zdvořile náš hrdina.
+
+„Ne, prosím, to nejde, Jakove Petroviči.
+Prosí vás, snažně vás prosí, čekají nás.
+Prý: ‚Udělejte nám tu radost a přiveďte Jakova Petroviče!‘ Tak je to, prosím.“
+
+„Ne, Jakove Petroviči, víte, líp bych udělal, kdybych… Radši bych šel domů…“
+Náš hrdina jako by se smažil na rozžhaveném roštu a současně tuhl hanbou a hrůzou.
+
+„Ne-ne-ne! Ani nápad!“ zašveholil ten ohava.
+„Ne-nene! Pojďme!“ prohlásil rozhodně a táhl našeho pana Goljadkina ke vchodu.
+Ten váhal, ale protože na něj všichni hleděli a odporovat a vzpírat se by bylo hloupé, vykročil – ostatně to nelze tvrdit, nevěděl totiž, co se s ním děje.
+Ale teď už to bylo jedno!
+
+Než se stačil vzpamatovat a přivést do pořádku, ocitl se v sále.
+Bledý, rozcuchaný a ztrápený přelétl kalným zrakem dav – ó hrůza! Sál a všechny pokoje byly nabité k prasknutí.
+Hostí bylo nepočítaně a celá oranžerie dam.
+Všichni se k němu tlačili, drali, doslova ho nesli na ramenou – bylo jasné, že ho kamsi postrkují.
+Přece ne ke dveřím, mihlo se mu hlavou… Ne, nepostrkovali ho ke dveřím, nýbrž k pohodlnému křeslu Olsufije Ivanoviče.
+Z jedné strany stála Klára Olsufjevna, bledá, unylá, smutná, ale skvěle oblečená.
+Panu Goljadkinovi utkvěly zejména bílé kvítky v jejích černých vlasech – ty působily obzvlášť efektně.
+Na druhé straně stál Vladimír Semjonovič v černém fraku s novým řádem v knoflíkové dírce.
+Našeho hrdinu vedli pod paždí, a jak již bylo výše zmíněno, přímo k Olsufiji Ivanoviči: z jedné strany druhý Goljadkin s nezvykle zdvořilým ušlechtilým výrazem, což našeho hrdinu nesmírně potěšilo, a z druhé strany Andrej Filipovič, který se tvářil navýsost slavnostně.
+Co to má znamenat? ptal se v duchu náš pan Goljadkin.
+Když ho přiváděli k Olsufiji Ivanoviči, náhle mu svitlo.
+Zastavil se, jako by do něj uhodil blesk: hlavou mu kmitla myšlenka na ukradený dopis… V předsmrtné hrůze stanul před křeslem Olsufije Ivanoviče… Co teď? pomyslel si.
+Samosebou, jen do toho, směle a upřímně, ale s jistou ušlechtilostí: tak a tak to bylo a tak dále… Ale jeho obava se zřejmě nesplnila.
+Olsufij Ivanovič ho přijal zcela blahosklonně – pravda, nepodal mu ruku, ale při pohledu na něho kývl stříbrovlasou úctyhodnou hlavou a zatvářil se, jak se panu Goljadkinovi zdálo, nějak teskně a zároveň obřadně.
+Dokonce snad v kalných očích Olsufije Ivanoviče se zatřpytila slza.
+Když zvedl hlavu, uviděl, že i na řasách Kláry Olsufjevny, která stála vedle otce, také jako by se zableskla slzička, a něco podobného zpozoroval i v očích Vladimíra Semjonoviče.
+Klidná, neotřesitelná důstojnost Andreje Filipoviče rovněž vydala za všeobecné dojetí a slzy a mladík, kdysi podobný důstojnému radovi, využil příhodné chvíle a hořce se rozplakal… Možná že se to všechno našemu panu Goljadkinovi jenom zdálo, protože i on zaslzel a jasně cítil, jak po jeho chladných tvářích stékají horké slzy… Smířený s lidmi i osudem, pociťoval tu nejvřelejší náklonnost nejen k Olsufiji Ivanoviči a všem ostatním hostům, ale dokonce i ke svému zlomyslnému blíženci, který v tu chvíli nebyl ani zlomyslný, ani blíženec, ale zcela cizí, nezúčastněný a krajně laskavý člověk.
+Náš hrdina si začal plačtivým hlasem vylévat srdce, ale tolik se toho v něm nakupilo, že nebyl schopen kloudného slova a jenom si výmluvně položil ruku na srdce… Andrej Filipovič, zřejmě aby ušetřil stříbrovlasého starce silného dojetí, odvedl našeho pana Goljadkina stranou, a jak se zdálo, ponechal ho osudu.
+Náš hrdina, trochu zmatený, ale skoro smířený s lidmi i osudem, se usmíval, mumlal si něco pod nos a prodíral se hustým davem.
+Všichni mu ustupovali a dívali se na něj s jakousi zvláštní zvědavostí a nevysvětlitelným záhadným soucitem.
+Vstoupil do sousedního pokoje a i zde se mu dostalo stejné pozornosti; zaslechl, jak se za ním všichni houfem tlačí, sledují každý jeho krok, potichu o čemsi zajímavém rokují, pokyvují hlavami, diskutují, debatují a špitají si.
+Tuze rád by věděl, o čem.
+Ohlédl se a uviděl po svém boku svého jmenovce.
+Pocítil potřebu chytit ho za ruku, odvést stranou a důtklivě ho požádat, aby mu byl nápomocný při všech jeho budoucích krocích.
+Druhý pan Goljadkin vážně přikývl a pevně mu stiskl ruku.
+Srdce našeho hrdiny se dojetím sevřelo.
+Zalapal po vzduchu a na prsa jako by mu dopadl kámen – připadalo mu, že všechny oči, obrácené k němu, ho tísní a drtí… Zahlédl radu, který nosil paruku, jak ho probodává přísným zpytavým pohledem, neobměkčeným všeobecným soucitem.
+Rozhodl se a zamířil přímo k němu, aby mu věnoval úsměv a pohovořil s ním, ale jeho záměr se nezdařil.
+V jednom okamžiku upadl do jakési letargie, na nic si nevzpomínal, nic necítil… Když se vzpamatoval, zjistil, že se potácí v kruhu hostů.
+Kdosi ho zavolal jménem a ozvěna se šířila celým davem.
+Všichni vzrušeně zahlučeli a nahrnuli se ke dveřím prvního sálu: našeho hrdinu dav skoro vynesl na rukách a bezcitný rada v paruce se ocitl po jeho boku.
+Nakonec vzal našeho hrdinu za ruku a usadil ho vedle sebe naproti křeslu Olsufije Ivanoviče, i když v uctivé vzdálenosti.
+Všichni přítomní se rozsadili v několika řadách kolem našeho hrdiny a Olsufije Ivanoviče.
+Všecko ztichlo a znehybnělo, všichni zachovávali obřadné mlčení, vzhlíželi k Olsufiji Ivanoviči a zřejmě očekávali cosi mimořádného.
+Náš pan Goljadkin si povšiml, že vedle Olsufije Ivanoviče, přímo proti zmíněnému radovi, se usadil jeho jmenovec a Andrej Filipovič.
+Mlčení se prodlužovalo: nejspíš na kohosi čekali.
+To je zrovna jako v rodině, když někdo odjíždí na dalekou cestu: teď ještě zbývá vstát a pomodlit se, pomyslel si náš hrdina.
+Jeho úvahy přerušil nezvyklý rozruch.
+Došlo k čemusi dlouho očekávanému.
+„Už jede! Už jede!“ šířilo se davem.
+Kdopak to jede? mihlo se panu Goljadkinovi hlavou, až sebou škubl jakýmsi zvláštním tušením.
+„Už je čas!“ prohlásil rada a pozorně se zadíval na Andreje Filipoviče.
+Ten zase upřel pohled na Olsufije Ivanoviče.
+Olsufij Ivanovič důležitě, obřadně přikývl.
+„Vstaňte,“ pobídl rada našeho pan Goljadkina a pomohl mu vstát.
+Všichni povstali.
+Rada vzal za ruku našeho hrdinu a Andrej Filipovič jeho jmenovce a oba je uvedli do kruhu čekajících hostů.
+Náš pan Goljadkin se nechápavě rozhlédl, ale hned ho zarazili a ukázali mu na druhého pana Goljad­kina, který mu podal ruku.
+Nejspíš nás chtějí usmířit, usoudil náš hrdina, radostně napřáhl ruku a naklonil se k svému blíženci, který učinil totéž… Vtom zpozoroval, že se jeho věrolomný přítel usmívá, letmo, šibalsky pomrkává na ostatní, tváří se škodolibě a dokonce se při svém jidášském políbení šklebí… Našemu hrdinovi hučelo v hlavě a před očima měl tmu; zdálo se mu, že všemi dveřmi hlučně vpadl dovnitř bezpočet, nekonečná řada navlas stejných Goljadkinů, ale už bylo pozdě… Ozval se mlaskavý zrádcovský polibek a…
+
+Tu došlo k zcela nečekané příhodě… Dveře sálu se prudce otevřely a na prahu se objevil… Už jen pohled na příchozího způsobil, že našemu panu Goljadkinovi zledovatěla krev v žilách a nohy jako by mu vrostly do země; v jeho sevřených prsou odumřel výkřik.
+Ostatně všecko předem věděl a dávno něco podobného tušil.
+Neznámý se k němu důležitě, důstojně blížil… Náš pan Goljadkin příchozího dobře znal a často, přečasto ho vídal, dokonce už dnes… Neznámý byl vysoký statný muž s hustými, smolně černými kníry, v černém fraku, s nápadným křížem na krku: k úplnému dokonalému dojmu mu chyběl jen doutník v ústech… Jak už bylo řečeno, našemu panu Goljadkinovi při pohledu na něj v žilách zledovatěla hrůzou krev.
+Ten obávaný člověk k němu přistoupil s vážným slavnostním výrazem… Náš smutný hrdina mu podal ruku.
+Neznámý ji stiskl a vlekl ho za sebou… Pan Goljadkin se bezradně, zničeně rozhlédl kolem…
+
+„Kristián Ivanovič Rutenšpic, doktor všeobecného lékařství a chirurg, váš dávný známý, Jakove Petroviči!“ zašveholil čísi odporný hlas panu Goljadkinovi rovnou do ucha.
+Náš hrdina se ohlédl a uviděl svého jmenovce, obdařeného těmi nejhoršími vlastnostmi.
+Z jeho obličeje vyzařovala zlomyslná škodolibá radost.
+Nadšeně si mnul ruce, kroutil hlavou, cupital, ometal se kolem každého, kolem všech: snad by se samou radostí pustil do tance.
+Nakonec vytrhl jednomu sluhovi svícen a vykročil, aby posvítil našemu panu Goljadkinovi a doktorovi na cestu.
+Náš hrdina zřetelně slyšel, jak se všichni za nimi hrnou, tlačí, div se navzájem neumačkají, a všichni sborem opakují za jeho zády: „To nic, nebojte se, Jakove Petroviči, to je váš starý přítel a známý doktor Rutenšpic…“ Konečně vyšli na hlavní, jasně osvětlené schodiště, kde už bylo také plno lidí; zaskřípěly domovní dveře a náš pan Goljadkin a doktor se ocitli venku.
+Před vchodem stál kočár se čtyřspřežím; koně netrpělivě odfrkávali.
+Proradný jmenovec několika skoky seběhl ze schodů a otevřel dvířka.
+Doktor výmluvným gestem vybídl našeho pana Goljadkina, aby vsedl do kočáru.
+Ostatně, nebylo to zapotřebí: našlo se dost těch, kdo mu pomáhali.
+Náš hrdina ztuhlý hrůzou se ohlédl: celé jasně osvětlené schodiště bylo zaplněné a odevšad na něho civěly zvědavé oči… Sám Olsufij Ivanovič předsedal ve svém pohodlném křesle na horním odpočívadle a napjatě, účastně sledoval celý výstup.
+Všichni čekali.
+Davem se šířilo netrpělivé reptání.
+Náš pan Goljadkin se ohlédl.
+
+„Doufám, že na tom všem není nic… odsouzeníhodného… nic, co by mohlo vzbudit pozornost a… nevoli, co se týče mých oficiálních vztahů…“ vypravil ze sebe zmateně.
+Kolem vypukl hluk a hovor: všichni zavrtěli hlavami.
+Panu Goljadkinovi vhrkly do očí slzy.
+
+„V tom případě jsem ochoten… plně se svěřuji… vkládám svůj osud do rukou Kristiána Ivanoviče…“
+
+Jen to dořekl, ohlušil ho radostný křik všech přítomných a šířil se čekajícím davem jako zlověstná ozvěna.
+Kristián Ivanovič a Andrej Filipovič ho svorně vzali v podpaždí a usadili do kočáru: druhý pan Goljadkin podle svého obvyklého zrádného zvyku mu pomáhal zezadu.
+Náš nešťastný hrdina naposledy všechny a všechno přelétl pohledem a roztřesený jako kotě, které polili studenou vodou, můžeme-li si dovolit takové přirovnání, vlezl do kočáru a za ním doktor.
+Dvířka kočáru zaklapla, zasvištěl bič, kočár se rozjel… a všichni se pustili za panem Goljadkinem.
+Namísto ponaučení ho provázely pronikavé zběsilé výkřiky jeho nepřátel.
+Chvíli se ještě míhaly jakési obličeje za okénky kočáru, který unášel našeho hrdinu, ale postupně odpadávaly a nakonec zmizely.
+Nejdéle to vydržel zlolajný jmenovec.
+Běžel, ruce v kapsách kalhot zelené uniformy, tvářil se spokojeně a vynořoval se hned na jedné, hned na druhé straně kočáru.
+Chvílemi se zachytil okenního rámu a visel, strkal hlavu do okénka kočáru a posílal našemu hrdinovi hubičky na rozloučenou.
+Ale i on se posléze unavil, objevoval se stále řidčeji a nakonec zmizel.
+Našemu panu Goljadkinovi se svíralo srdce, krev mu bušila ve spáncích, dech se mu úžil; rád by si rozepjal plášť, obnažil hruď, zasypal ji sněhem a polil studenou vodou.
+Nakonec upadl do letargie… Když přišel k sobě, poznal, že ho koně unášejí jakousi neznámou cestou.
+Kolem bylo pusto a liduprázdno, napravo i nalevo se černaly lesy.
+Náhle strnul: ve tmě blýskaly čísi ohnivé oči a upíraly na něj zlověstný, ďábelsky vítězoslavný pohled.
+Tohle přece není doktor! Ale kdo je to tedy? Nebo je to on? Ano, je to on, jenomže ne dřívější Kristián Ivanovič, ale jiný, hrozivý…
+
+„Doktore, já… já jen…“
+hlesl nesměle náš roztřesený hrdina a snažil se poslušností a pokorou svého průvodce obměkčit.
+
+„Vy dostanete erární kvartýr s otopem, Licht a obsluhou.
+Ani si to nezasloužíte,“
+zazněla přísná, výhrůžná odpověď jako rozsudek.
+
+Náš hrdina vykřikl a chytil se za hlavu.
+Běda! Tohle už dávno tušil!

@@ -1,0 +1,183 @@
+---
+title: ""
+---
+
+4
+
+Slavnostní den narozenin Kláry Olsufjevny, jediné dcery státního rady Berendějeva, současného dobrodince pana Goljadkina, den, který začal velkolepým obědem pro zvané, jaký v úřednických rodinách u Izmajlovského mostu a v okolí už dávno nepamatovali, obědem podobajícím se spíš baltazarovské hostině než obědu, připomínajícím cosi babylonského, pokud jde o lesk, přepych a vybrané chování, obědem s šampaňským značky Clicquot, s ústřicemi a ovocem z nejlepších lahůdkářství od Jelisejeva a Miljutina, s rozmanitými, dobře živenými těly a zasedacím pořádkem podle úřednických hodností, onen slavnostní den, zahájený slavnostním obědem, byl zakončen oslnivým plesem, malým domácím plesem, nicméně velkolepým co do vkusu, kultivovanosti a vybraných způsobů.
+Samosebou, souhlasím, takové plesy bývají, jenomže zřídkakdy.
+Podobné bály připomínající spíš rodinné dýchánky než plesy se mohou pořádat výhradně v takových domácnostech, jako byla domácnost státního rady Berendějeva.
+Ba co víc: dokonce pochybuji, že by se mohly takové bály pořádat u všech státních radů… Ach, kdybych byl básník – pochopitelně alespoň takový, jako byl Homér nebo Puškin, nikdo méně talentovaný by se do toho nemohl míchat –, tak tedy kdybych byl básník, určitě bych čtenářům vylíčil sytými barvami a rozmáchlým štětcem celý ten přeslavný den.
+Ne, začal bych svou poemu obědem, a obzvláště bych se soustředil na ten překvapivý slavnostní okamžik, kdy se pozvedla první číše na počest královny slavnosti provázená přípitkem.
+Zachytil bych především hosty pohroužené do posvátného mlčení a očekávání, podobného spíš demosthenovské výmluvnosti než mlčení.
+Potom bych vám popsal Andreje Filipoviče jako nejstaršího z hostů ozdo­beného šedinami a jim odpovídajícími řády, který měl dokonce určité právo na prvenství, jak vstává a pozvedá číši k přípitku, naplněnou jiskřivým vínem speciálně dováženým k podobným příležitostem z jednoho vzdáleného království, vínem připomínajícím spíš božský nektar než víno.
+Vykreslil bych vám hosty i šťastné rodiče oslavenkyně, kteří pozvedli své číše hned po Andreji Filipoviči a upřeli na něj zraky plné očekávání.
+Vylíčil bych vám, jak tento často zmiňovaný Andrej Filipovič nejprve uronil do číše slzu a pak pronesl zdravici a blahopřání, ohlásil přípitek a nakonec připil na zdraví… Ale přiznávám, plně přiznávám, nedovedl bych vystihnout ten slavnostní okamžik, kdy oslavenkyně Klára Olsufjevna zčervenala jako jarní růže blaženým stydlivým ruměncem, v náporu citů klesla v objetí své něžné matky, jak něžná matka zaslzela a při té příležitosti se rozeštkal i sám otec, důstojný stařec a státní rada Olsufij Ivanovič, nepohyblivý následkem dlouholeté služby, kterého osud odměnil za takovou horlivost nevelkým kapitálem, domkem, vesnicemi a dcerou krasavicí… Otec se rozplakal jako malé dítě a prohlásil v slzách, že Jeho Excelence je dobrodinec.
+Neuměl bych, ano, opravdu bych neuměl vylíčit vám dojetí, které nevyhnutelně následovalo a zřetelně se projevilo dokonce i chováním jednoho mladého úředníka (v tu chvíli se spíš podobal státnímu radovi než pouhému registrátorovi), který se při slovech Andreje Filipoviče rozvzlykal.
+Andrej Filipovič v tom slavnostním okamžiku vůbec nevypadal jako státní rada a přednosta oddělení v jistém úřadu – ne, zdál se být jiný –, jenomže nevím, koho připomínal, ale v žádném případě nikoliv státního radu.
+Byl to někdo významnější.
+A konečně… ach! proč neovládám tajemství vznešeného, působivého slavnostního slohu, abych vám vylíčil všechny ty překrásné a poučné momenty lidského života, jako by speciálně zorganizovaného proto, aby dokázaly, jak někdy šlechetnost vítězí nad nešlechetností, volnomyšlenkářstvím, neřestí a závistí! Neřeknu vám nic, jen mlčky, což bude lepší než veškeré krasořečnění, vám ukážu toho šťastného mladíka, který pravě stojí na prahu svého šestadvacátého jara, Vladimíra Semjonoviče, synovce Andreje Filipoviče: právě na něj došla řada, vstává, pronáší přípitek a upírají se na něj slzící zraky rodičů oslavenkyně, hrdé zraky Andreje Filipoviče, stydlivý pohled samotné královny slavnosti, nadšené zraky hostí a dokonce silně závistivé zraky některých mladých kolegů.
+Nepovím nic, ačkoliv nemohu pominout, že tento skvělý jinoch, připomínající spíš starce než mladíka, ovšem v příznivém smyslu, od kvetoucích tváří až po současnou hodnost přísedícího, v tom slavnostním okamžiku jako by hlásal: hleďte, jak vysoko může povznést člověka mravní bezúhonnost! Nebudu líčit, jak Anton Antonovič Setočkin, přednosta jedné kanceláře, kolega Andreje Filipoviče a kdysi i Olsufije Ivanoviče a současně starý rodinný přítel a kmotr Kláry Olsufjevny, stařík bílý jako mléko, pronesl přípitek a přitom zakokrhal jako kohout a přednesl veselé veršíky.
+Tímhle humorným _faux pas_, dá-li se to tak říci, rozesmál celou společnost až k slzám a sama Klára Olsufjevna ho na příkaz rodičů za takovou zábavnost a laskavost políbila.
+Řeknu jen, že hosté, kteří po takovém obědě se jistojistě sbratřili, konečně vstali od stolu a staříci i ctihodní páni po krátkém přátelském rozhovoru a dokonce nějaké té zdvořilé roztomilé důvěrnosti věcně přešli do dalšího pokoje, neztráceli čas, rozdělili se na skupinky, a s pocitem důstojnosti zasedli ke stolům potaženým zeleným suknem.
+Dámy, které se usadily v salonu, navýsost laskavě rozmlouvaly o různých věcech, a konečně sám vysoce vážený hostitel, zbavený pohyblivosti a za věrné a spolehlivé služby odměněný vším výše vzpomínaným, chodil o berlích mezi hosty, podpíraný Vladimírem Semjonovičem i Klárou, a díky své laskavosti se rozhodl improvizovat malý skromný ples bez ohledu na výdaje.
+Za tím účelem byl vyslán jeden čilý mladík (ten, co se při obědě podobal spíš státnímu radovi než mladíkovi), aby sezval hudebníky; ti přišli v počtu jedenácti kusů a nakonec přesně v půl deváté zazněly vybízivé tóny francouzské čtverylky i ostatních rozličných tanců… Nemá smysl mluvit o tom, že moje pero je příliš slabé a tupé, aby věrně zachytilo obraz plesu, improvizovaného díky mimořádné laskavosti šedovlasého hostitele.
+A jak bych uměl, ptám se, já, skromný vypravěč dobrodružství pana Goljadkina, i když nepostrádají jistou zajímavost, vylíčit tu neobyčejnou a ušlechtilou směsici krásy, lesku, vybranosti, veselí, laskavé důstojnosti a důstojné laskavosti, čtveračivosti i radosti, všechny ty hry a smích všech úřednických dam, podobných spíš vílám než dámám – myslím k jejich prospěchu – s liliově růžovými rameny a tvářemi, éterickými postavami, hravými, řečeno vybraně, homeopatickými nožkami? A konečně, jak vám popíšu ty oslnivé rytířské úředníky, veselé i důstojné, mladíky i pány v letech, radostné i mlhavě zdvořilé, kteří o přestávkách mezi tanci kouřili v malém odlehlém zeleném salonku dýmku, i ty, co nekouřili, kavalíry, kteří měli na čele napsáno vše, od prvního do posledního, patřičnou hodnost i jméno, kavalíry hluboce prodchnuté smyslem pro krásu i vlastní důstojnost, kavalíry, kteří většinou hovořili francouzsky, a když rusky, pak jen vybranými slovy, nešetřili lichotkami a hlubokomyslnými úvahami, kavalíry, kteří si snad jen v kuřárně dovolili určité roztomilé odchylky od vybraného tónu, některé přátelské, milé a krátké věty jako: „Seš pašák, Pětko, jak jsi válel polku!“ nebo „Seš ty ale, Vasko, málem jsi tu svou dámičku k smrti utancoval!“ Ouvej, můj čtenáři, pero mi nestačí, abych to všechno vylíčil, a proto mlčím.
+Raději se vraťme k panu Goljadkinovi, skutečnému hrdinovi našeho pravdivého příběhu.
+
+Háček je v tom, že právě teď se nachází přinejmenším v podivné situaci.
+Je totiž rovněž zde, vážení, totiž ne na plese, ale skoro jako na plese.
+Jen tak, z vlastní vůle, ale tentokrát nejde přímou cestou, stojí totiž – je to až podivné – v síni, u zadního schodiště bytu Olsufije Ivanoviče.
+Ale to ještě nic není.
+On stojí v koutě, vážení, vtlačený do nejtemnějšího, nejteplejšího kouta, částečně schovaný za obrovskou skříní a starými závěsy, mezi různými střepy, krámy, haraburdím.
+Dočasně se skrývá a prozatím pouze sleduje jako nezúčastněný divák průběh událostí.
+Dosud jen pozoruje, vážení, ale mohl by také vejít dovnitř, a proč by ne? Stačí jediný krok a bude uvnitř, obratně proklouzne.
+Teď trčí už tři hodiny v zimě mezi skříní a zástěnami, mezi všelijakými střepy, krámy a haraburdím, a aby se ospravedlnil, cituje jeden výrok francouzského ministra Villèla blahé paměti, že „všecko půjde jako na drátkách, nechybí-li výdrž“.
+Tuhle větu pan Goljadkin kdysi vyčetl z jakési bezvýznamné knížky, ale teď si ji vhodně připomněl.
+Za prvé, náramně dobře se hodila v jeho nynější situaci, a za druhé, co všecko se člověku nehoní hlavou, když čeká skoro celé tři hodiny v síni, ve tmě a zimě na šťastné rozuzlení svých záležitostí? Sotva odcitoval v příhodnou chvíli, jak jsme již řekli, větu bývalého francouzského ministra Villèla, vybavil si ještě kdesi vyčtený příběh bývalého tureckého vezíra Marcimirise a sličné markýzy Luisy.
+Pak se rozpomněl, jak se jezuité dokonce řídili zásadou, že účel světí prostředky.
+Poněkud povzbuzen tímto historickým exkurzem si řekl: copak jezuiti! Ti byli všichni do jednoho náramní hlupáci.
+On je všecky strčí do kapsy… Jen kdyby se alespoň na minutu vyprázdnil bufet (dveře vedly přímo do síně, na zadní schodiště, kde se nalézal), on, Goljad­kin, navzdory všem jezuitům zvítězí, proklouzne dovnitř, nejdřív z bufetu do čajového salonku a pak do pokoje, kde teď páni hrají karty, a dál přímo do sálu, kde tancují polku.
+Proklouzne, zaručeně proklouzne, stůj co stůj a nikdo ho nezpozoruje.
+Pak už bude vědět, co udělá.
+Tak tedy v takové situaci, vážení, zastihujeme hrdinu našeho pravdivého příběhu, ačkoliv je obtížné vysvětlit, co se s ním vlastně zrovna v tu chvíli děje.
+Do síně a na schodiště totiž pronikl, proč by taky ne, tam se dostane každý, ale dále si netroufal, to bylo jasné… Ne snad že by si netroufal, ale prostě nechtěl, dával přednost tichému úkrytu.
+A tak vyčkává, vážení, přesně dvě a půl hodiny.
+A proč by ne? I sám Villèle vyčkával.
+Ale co Villèle! Co ten s tím má společného? pomyslel si pan Goljadkin.
+Jak bych to měl udělat, abych se dostal dovnitř? „Ty statisto!“ peskoval se a ztuhlými prsty se štípl do ztuhlé tváře, „seš ty ale ťululum! Ubožák, chudák, hotové ubožátko, jak napovídá už tvoje příjmení.“
+Řekl to mazlivé slůvko na svou adresu jen tak, mimochodem, bez zjevného úmyslu.
+Ošil se a vykročil.
+Nastal vhodný okamžik, bufet se vyprázdnil, nikde nikdo: viděl všecko okénkem.
+Dvěma skoky se ocitl u dveří, ruku na klice.
+Mám, nebo nemám? Půjdu… proč bych nešel? Odvážnému štěstí přeje! Po takovém povzbuzení nečekaně zacouval zpět za zástěny.
+Ne, ne, uvažoval, co když tam někdo vejde? A taky že ano! Už jsou tam! Proč jsem otálel, když tam nikdo nebyl? Kdybych si tak troufl proklouznout dovnitř! Ne, s mou náturou… Jsem já to hnida! Baba! Zbabělost, to je naše, tak je to! Něco pokazit, to my umíme.
+Na to se nás nemusíte ani ptát.
+Tak a teď tady stojím jako solný sloup! Doma bych si dal šálek čaje… Bylo by příjemné vypít šálek čaje.
+Jestli se opozdím, Petruška bude nejspíš vrčet.
+Neměl bych jít domů? Aby to čert vzal! Jdu dovnitř a basta! Sotva rozřešil svoje dilema, spěšně vykročil, jako by ho kdosi natáhl na péro, a dvěma kroky se ocitl v bufetu.
+Shodil plášť, klobouk, rychle to mrskl do kouta, upravil se a rozhlédl.
+Pak… pak zamířil do čajového salonku, odtud nakoukl do dalšího pokoje, proklouzl téměř nepozorovaně mezi rozvášněnými hráči a pak… v tu chvíli zapomněl na celý svět a namířil si to rovnou do tanečního sálu.
+
+Jako naschvál v tu chvíli nikdo netančil.
+Dámy v malebných skupinkách korzovaly po sálu.
+Muži se shlukovali do kroužků nebo šmejdili sálem a zadávali si dámy.
+Pan Goljadkin nic z toho nevnímal.
+Měl oči jen pro Kláru Olsufjevnu: vedle ní stál Andrej Filipovič, Vladimír Semjonovič a ještě několik důstojníků a mladých mužů, také velice zajímavých, kteří na první pohled vzbuzovali určité naděje, anebo už je realizovali… Viděl ještě leckoho.
+Nebo ne: už nikoho neviděl a na nikoho nehleděl… pohyboval se, jako by byl poháněn jakousi pružinou, která ho donutila vetřít se na ples, přestože nebyl pozván, a teď ho hnala stále vpřed… Mimochodem se srazil s jakýmsi radou a dupl mu na nohu, přišlápl šaty jedné úctyhodné stařence a potrhal je, strčil do číšníka s podnosem, ještě do leckoho vrazil, aniž si toho všiml, nebo lépe řečeno, povšiml si toho, ale nedbal, nedíval se vpravo ani vlevo a prodíral se kupředu, až se ocitl před samotnou Klárou Osufjevnou.
+Nepochybně by se bez mrknutí oka v tom okamžiku s největší chutí propadl do země, ale co se stalo, stalo se… a nedalo se odestát.
+Co teď? Když se něco nedaří, vydržte, a když se to podaří, zadržte.
+Pan Goljadkin nebyl přirozeně žádný intrikán a neuměl leštit kliky… Takové už to bylo.
+Navíc se mu do všeho připletli jezuiti… Jenže na ně teď neměl ani pomyšlení… Všecko, co chodilo, hlučelo, mluvilo, smálo se, naráz jako na povel ztichlo a postupně se kolem něj shluklo.
+On sám však jako by neviděl, neslyšel, nedokázal se rozhlédnout kolem… Ani za nic! Stál, oči sklopené, a sliboval sám sobě na svou čest, že se dnes v noci zastřelí.
+Po takovém slibu si v duchu řekl: Když už, tak už.
+A k svému obrovskému údivu zcela nečekaně spustil.
+
+Začal zdravicí a zdvořilým blahopřáním: zdravice prošla zdařile, ale při blahopřání se náš hrdina zajíkl.
+Cítil, že když k tomu dojde, všechno poletí k čertu.
+A také že ano, zajíkl se, zarazil… zarazil se a zrudl; zrudl a zrozpačitěl; zrozpačitěl, zvedl hlavu a rozhlédl se kolem; rozhlédl se a strnul… Všechno stálo, mlčelo, vyčkávalo; opodál se ozval šepot a poblíž smích.
+Vrhl bezradný pokorný pohled na Andreje Filipoviče, a ten odpověděl takovým pohledem, že nebýt náš hrdina úplně zničený, tohle by ho dorazilo, kdyby to jen bylo možné.
+Mlčení se prodlužovalo.
+
+„To se spíš týká domácích poměrů a mého osobního života, Andreji Filipoviči,“ pronesl sotva slyšitelně polomrtvý pan Goljadkin, „to není nic oficiálního…“
+
+„Styďte se, pane!“
+zasykl Andrej Filipovič s rozhořčeným výrazem, vzal Kláru Olsufjevnu za ruku a obrátil se k panu Goljadkinovi zády.
+
+„Nemám se proč stydět, Andreji Filipoviči,“
+namílt pan Goljadkin rovněž skoro šeptem a rozhlédl se bezradně po sále ve snaze najít v nechápavém davu podporu a svoje ztracené společenské postavení.
+
+„Nevadí, pánové! Nevadí! Co na tom? To se může stát každému,“ zašeptal a pokoušel se prodrat davem, který ho obklopil.
+Uvolnili mu cestu.
+Jakžtakž prošel mezi dvěma řadami zvědavých nechápavých pozorovatelů: osud ho vlekl.
+Cítil, že je vláčen osudem.
+Samozřejmě by dal mnoho za to, kdyby se mohl bez nějakého _faux pas_ přenést na své dřívější stanoviště v síni u zadního schodiště, ale protože to bylo zhola nemožné, snažil se zmizet někam do kouta a tam skromně, slušně, osaměle stát, nikoho nerušit, nepřitahovat ničí zvláštní pozornost, ale zároveň získat přízeň hostů i hostitele.
+Cítil, jak mu ujíždí půda pod nohama, vrávoral, padal.
+Konečně se prodral do jednoho kouta a stál tam jako nezúčastněný, poměrně lhostejný pozorovatel, opřen oběma rukama o opěradla dvou židlí, a pokoušel se vrhnout pokud možná energický pohled na hosty Olsufije Ivanoviče, kteří ho obklopili.
+Nejblíž stál jakýsi důstojník, vysoký hezoun, před nímž si připadal jako červ.
+
+„Tyhle dvě židle jsou zadané, poručíku: jedna pro Kláru Olsufjevnu a druhá pro kněžnu Čevčechanovovou, která právě tančí.
+Držím jim místo,“ vypravil ze sebe dýchavičně a upřel na poručíka úpěnlivý pohled.
+Ten se mlčky, se zdrcujícím úsměvem odvrátil.
+Když se náš hrdina poprvé netrefil, zkusil štěstí podruhé.
+Obrátil se přímo na jednoho důležitého radu s řádem na šíji.
+Ale ten si ho změřil takovým mrazivým pohledem, že pan Goljadkin měl pocit, jako by na něj vychrstli celý škopek vody, a zmlkl.
+Rozhodl se raději mlčet, s nikým se nebavit a dokázat, že on nic, že je stejný jako ostatní a chová se, jak se sluší! Přikoval pohled k manžetám své úřednické uniformy a pak vzhlédl a zadíval se na jednoho úctyhodného pána.
+Má paruku, usoudil v duchu, kdyby ji sundal, objeví se holá lebka, asi taková jako moje dlaň.
+Po tak důležitém objevu si vzpomněl na arabské emíry: kdykoliv odloží zelené čalmy, jež nosí na znamení spřízněnosti s prorokem Mohamedem, objeví se rovněž holá olysalá lebka.
+Náš hrdina myšlenkovým pochodem dospěl od Turků až k tureckým pantoflím a mimochodem si vybavil, že Andrej Filipovič nosí holínky, které připomínají spíš pantofle než holínky.
+Bylo zřejmé, že už se částečně vpravil do nové situace.
+Kdyby se tenhle lustr, blesklo mu hlavou, zřítil na společnost, vrhl bych se k místu neštěstí, abych zachránil Kláru Olsufjevnu, a pověděl bych jí: „Nemějte obavu, slečno, to nic, prosím, já jsem váš zachránce.“
+A pak… Ohlédl se a pátral po Kláře Olsufjevně.
+Namísto toho zahlédl Gerasimyče, jak se k němu prodírá se starostlivým, oficiálně slavnostním výrazem.
+Pana Goljadkina se zmocnil nepříjemný pocit, až sebou škubl a zamračil se.
+Mechanicky se rozhlédl: napadlo ho, že by se mohl potají, nenápadně vytratit, a tak se vyhnout nepříjemností, prostě zmizet, totiž provést to tak, jako by všecko šlo mimo něj a on nic, on muzikant.
+Ale dřív než se stačil pro něco rozhodnout, Gerasimyč už stál před ním.
+
+„Poslyšte, Gerasimyči,“ oslovil sluhu a pousmál se, „tamhleta svíčka ve svícnu co nejdřív spadne.
+Poručte, ať ji narovnají, vážně…“
+
+„Svíčka, říkáte? Ne, prosím, ta stojí rovně… Ale někdo se po vás ptá…“
+
+„A kdopak, Gerasimyči?“
+
+„Namoutě, nevím, prosím.
+Nějaký sluha, prosím.
+Ptal se, zda je přítomen Jakov Petrovič.
+,Je,‘ povídám. ‚Tak ho laskavě vyvolejte… Jde o naléhavou a neodkladnou záležitost…‘ Tak je to, prosím.“
+
+„Ne, Gerasimyči, mýlíte se: to je omyl.“
+
+„To sotva, prosím…“
+
+„Ne, Gerasimyči, určitě, o tom není nejmenších pochyb.
+Nikdo se po mně neptá a já jsem tady ve svém, totiž na svém místě.“
+
+Pan Goljadkin popadl dech a rozhlédl se kolem.
+Ano, tak to bylo: všichni, kdo byli v sále, na něho upřeli pohledy a nastražili uši v jakémsi slavnostním očekávání.
+Muži se tísnili poblíž a pozorně naslouchali.
+Opodál si neklidně špitaly dámy.
+Sám hostitel stanul v těsné blízkosti, a přestože se z jeho výrazu nedalo vypozorovat, že je přímo a bezprostředně účasten akce proti Goljadkinovi – všechno se dělo nejvýš delikátně, nicméně všecko naznačovalo, že nastává rozhodný okamžik.
+Náš pan Goljadkin vycítil, že je načase směle zaútočit a zostudit nepřátele.
+Byl rozčilený. V náhlém vzepětí začal roztřeseným slavnostním hlasem, otočen k čekajícímu Gerasimyči:
+
+„Ne, příteli, nikdo se po mně neptal.
+Mýlíš se. Dnes už ses mýlil jednou, když jsi mě přesvědčoval… troufal sis mě přesvědčit –“ a zvýšil hlas – „že Olsufij Ivanovič, odnepaměti můj dobrodinec, který mi v jistém smyslu nahrazoval otce, přede mnou uzavře dveře svého domu ve chvíli, kdy jeho otcovské srdce je naplněno tou největší radostí a štěstím…“
+
+A sebejistě, procítěně se rozhlédl kolem.
+Na řasách se mu objevily slzy.
+„Opakuju, můj příteli, mýlil ses, krutě, neodpustitelně ses mýlil…“
+
+Nastal slavnostní okamžik.
+Pan Goljadkin cítil, že účinku bylo dosaženo.
+Stál, hlavu skromně sklopenou, a čekal, že ho Olsufij Ivanovič obejme.
+Mezi hosty se šířilo vzrušení a nechápavost: dokonce i sám výhrůžný a neústupný Gerasimyč se zajíkl při slově: „To sotva, prosím…“, ale vtom nemilosrdný orchestr zničehonic spustil polku.
+Všecko bylo totam, všecko se rozptýlilo ve větru.
+Pan Goljadkin sebou škubl, Gerasimyč ucouvl, sál se zavlnil jako moře a už se po parketu rozletěl první pár – Vladimír Semjonovič s Klárou Olsufjevnou a za nimi hezoun poručík s kněžnou Čevčechanovovou.
+Diváci se zvědavě, nadšeně tísnili kolem, aby viděli, jak se tančí polka, nový zajímavý módní tanec, který všem zamotal hlavu.
+Na pana Goljadkina na čas zapomněli.
+Ale náhle vypukl všeobecný ruch, vzrušení, zmatek a hudba ztichla… Došlo k podivné příhodě.
+Tancem znavená Klára Olsufjevna s rozpálenými tvářemi sotva popadala dech a vyčerpaně sklesla do křesla: ňadra se jí vysoko zvedala.
+Všechna srdce tíhla ke krásné kouzelnici, všichni jeden přes druhého se k ní hrnuli, aby ji pozdravili a poděkovali za krásný zážitek.
+Znenadání se před ní ocitl pan Goljadkin.
+Byl bledý, krajně rozčilený, jako by i on se cítil vyčerpaný; jen stěží se pohyboval.
+Bůhvíproč se usmíval a prosebně k ní vztahoval ruku.
+Překvapená Klára Olsufjevna nestačila svou ruku odtáhnout a na jeho vyzvání mechanicky vstala.
+Náš hrdina se zakomíhal jednou, podruhé a pak šoupl nožkou, přidupl a nakonec klopýtl: i on chtěl tančit s Klárou Olsufjevnou.
+Ta vykřikla a všichni přispěchali a snažili se vyprostit její ruku z ruky pana Goljadkina.
+Dav naším hrdinou smýkl a odstrčil ho skoro na deset kroků.
+Kolem něho se utvořil shluk.
+Ozýval se jekot a křik dvou stařen, které pan Goljadkin v letu div neporazil.
+Nastal strašlivý zmatek, všichni se vyptávali, křičeli, pronášeli soudy.
+Orchestr zmlkl.
+Náš hrdina se zmítal ve shluku hostí, bezmyšlenkovitě se usmíval a mumlal si pod vousy něco jako „proč by ne, co má být, polka je, jak se zdá, nový zajímavý tanec, vymyšlený pro potěšení dam“… Když už je to tak, on sám není proti… Jenomže na jeho souhlas nikdo nebyl zvědavý.
+Vtom cítil, jak na jeho ruku dopadla cizí ruka, druhá se mu opřela do zad a obezřetně ho kamsi postrkovala.
+Konečně poznal, že míří rovnou ke dveřím.
+Chtěl něco říct, něco udělat… ale ne, nechtěl už nic.
+Jenom se mechanicky usmíval.
+Uvědomil si, že mu navlékají plášť a narážejí mu klobouk hluboko do očí.
+Nakonec se ocitl ve tmě a zimě v předsíni a potom na schodišti.
+Klopýtl a měl pocit, že padá do propasti; chtěl vykřiknout, ale to už stál venku na dvoře.
+Ovanul ho svěží vzduch: na okamžik setrval bez hnutí a náhle k němu dolehly obnovené tóny hřmícího orchestru.
+Na všecko se rozpomněl a cítil příliv sil.
+Prudce vyrazil z místa, kde stál jako přikovaný, a střemhlav pádil ven do neznáma, na vzduch, na svobodu, kam ho oči povedou…

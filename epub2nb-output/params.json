@@ -5,7 +5,7 @@
       "identifier": "urn:uuid:9fbe7ba5-2c2e-4c8b-9afe-907fadbc7629",
       "author": "Fedor Michajlovič Dostojevskij",
       "publisher": "Městská knihovna v Praze",
-      "modified": "2021-08-04T17:34:21.885Z"
+      "modified": "2021-12-01T17:27:19.806Z"
     },
     "chapters": [
       {
@@ -179,6 +179,6 @@
       "user": "books-are-next",
       "repo": "dvojnik"
     },
-    "generatedAt": 1628098462171
+    "generatedAt": 1638379640195
   }
 }

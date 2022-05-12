@@ -10,6 +10,7 @@ meta:
   publisher: Městská knihovna v Praze
   modified: '2019-01-29T00:00:00.000Z'
 readingOrder:
+  - promo.html
   - dvojnik_001.html
   - dvojnik_002.html
   - dvojnik_003.html

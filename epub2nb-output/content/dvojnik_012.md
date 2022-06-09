@@ -3,8 +3,6 @@ title: '8'
 contentType: prose
 ---
 
-  
-
 Jako obvykle se nazítří probudil v osm hodin a okamžitě si vybavil všecko, co se včera večer událo – všecko si vybavil a zamračil se. Včera jsem ze sebe udělal osla!, usoudil v duchu, zvedl se na posteli a zašilhal na lůžko svého hosta. Ale k svému velkému překvapení neuviděl hosta ani lůžko! „Co to znamená?“ skoro vykřikl. Co má znamenat tahle novinka? Mezitím co nechápavě, s otevřenými ústy hleděl na uprázdněné místo, vrzly dveře a vešel Petruška s podnosem. „Kde je, kde je?“ zakníkal náš hrdina a ukázal na místo vyhrazené pro hosta. Petruška nejprve neodpověděl, dokonce mu nevěnoval ani pohled, ale zabloudil očima jinam a pan Goljadkin ho chtě nechtě napodobil. Po chvilce mlčení sluha chraplavým hrubým hlasem vysvědoval, že pán není doma.
 
 „Troubo! Já jsem tvůj pán!“ přerušil ho zajíkavě pan Goljadkin a vykulil na něj oči.

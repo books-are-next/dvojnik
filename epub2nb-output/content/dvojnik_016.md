@@ -3,8 +3,6 @@ title: '12'
 contentType: prose
 ---
 
-  
-
 Petruška přivrávoral do pokoje s buranským vítězoslavným výrazem a choval se nějak podivně, ležérně. Bylo vidět, že má cosi za lubem, cítí se být v právu a tváří se jako cizí, a ne jako bývalý sluha našeho pana Goljadkina.
 
 „Tak vidíš, kamaráde,“ spustil udýchaně náš hrdina. „Kolikpak je hodin?“ Petruška mlčky zamířil za přepážku a pak nedbale oznámil, že už je skoro půl osmé.

@@ -9,4 +9,4 @@ Petrohradská poema
 
 Fjodor Michajlovič Dostojevskij
 
-Přeložila Alena Morávková
+_Přeložila Alena Morávková_

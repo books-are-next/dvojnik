@@ -3,6 +3,8 @@ title: '12'
 contentType: prose
 ---
 
+<section>
+
 Petruška přivrávoral do pokoje s buranským vítězoslavným výrazem a choval se nějak podivně, ležérně. Bylo vidět, že má cosi za lubem, cítí se být v právu a tváří se jako cizí, a ne jako bývalý sluha našeho pana Goljadkina.
 
 „Tak vidíš, kamaráde,“ spustil udýchaně náš hrdina. „Kolikpak je hodin?“ Petruška mlčky zamířil za přepážku a pak nedbale oznámil, že už je skoro půl osmé.
@@ -204,3 +206,5 @@ Vypuklo všeobecné pozdvižení. Andrej Filipovič a neznámý pokývali hlava
 „Zpustlíku!“
 
 „Ať jsem třeba zpustlík,“ opáčil jeho nehodný nepřítel a podle svého podlého zvyku na něj shlížel ze schodiště, díval se mu přímo do očí a ani nehnul brvou, jako by ho vyzýval, aby pokračoval. Náš hrdina si vztekle odplivl a vyběhl před dům: byl natolik zdeptaný, že si vůbec nepamatoval, kdo a jak ho usadil do kočáru. Když se vzpamatoval, poznal, že ho vezou po Fontánce. Tak tedy k Izmajlovskému mostu? svitlo mu hlavou. Byl by rád pokračoval ve svých úvahách a bylo to cosi nevýslovně hrozného, že se to ani nedalo vysvětlit, ale nešlo to, nebyl schopen… Nevadí, usoudil v duchu a zamířil k Izmajlovskému mostu.
+
+</section>

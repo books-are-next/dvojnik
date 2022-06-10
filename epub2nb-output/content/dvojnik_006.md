@@ -3,6 +3,8 @@ title: '2'
 contentType: prose
 ---
 
+<section>
+
 Doktor medicíny a chirurg Kristián Ivanovič Rutenšpic, muž v letech, kypící zdravím, s hustým prošedivělým obočím a kníry, s pronikavým ohnivým pohledem, kterým zřejmě zaháněl všecky choroby, a s důležitým řádem seděl toho rána v ordinaci ve své pohodlné lenošce, popíjel kávu, kterou mu vlastnoručně donesla jeho žena, kouřil doutník a chvílemi předepisoval svým pacientům léky. Když předepsal poslední lahvičku jednomu staříkovi trpícímu hemoroidy a vyprovodil trpícího k postranním dveřím, usedl a čekal na dalšího pacienta. Vstoupil pan Goljadkin.
 
 Kristián Ivanovič ho zřejmě neočekával a ani po něm netoužil, protože na okamžik zrozpačitěl a bezděčně nasadil podivný, možno říci mrzutý výraz. Pokud šlo o příchozího, ten skoro vždycky klesal na mysli a ztrácel duchapřítomnost ve chvílích, kdy měl někoho obtěžovat svými záležitostmi. Ani teď si nepřipravil první větu, která pro něj v podobných případech představovala kámen úrazu, upadl do obrovských rozpaků, cosi zabručel – snad jakousi omluvu a protože nevěděl, co si má dál počít, uchopil židli a posadil se. Ale hned si uvědomil, že to učinil bez vyzvání; vycítil, že se zachoval nezdvořile, a honem se pokusil napravit svou chybu – neznalost dobrého tónu – a vstal. Když se vzpamatoval, zmateně zjistil, že se dopustil dvou hloupostí najednou, a bez váhání se dopustil třetí, totiž snažil se ospravedlnit, cosi s úsměvem zahučel, začervenal se, významně se odmlčel a konečně usedl a už nevstal: pro každý případ se vyzbrojil vyzývavým pohledem, který měl neobyčejnou pomyslnou moc zničit a rozprášit všechny nepřátele. Navíc ten pohled vyjadřoval jeho nezávislost, totiž hovořil jasně, že pan Goljad­kin je sám pro sebe jako ostatní a v žádném případě se do ničeho neplete. Kristián Ivanovič si odkašlal, nejspíš souhlasně, jako by to schvaloval, a upřel na příchozího inspektorsky tázavý pohled.
@@ -182,3 +184,5 @@ Kristián Ivanovič přikývl.
 Uklonil se a vyšel z pokoje. Doktor se ještě nevzpamatoval z ohromení. Pan Goljadkin se radostně usmíval, když sestupoval ze schodů, a vesele si mnul ruce. Na zápraží vdechl svěží vzduch: cítil se volně a dokonce by se prohlásil za nejšťastnějšího smrtelníka a pak se rovnou odebral do úřadu, ale vtom před vchodem zahrčel jeho kočár. Při pohledu na něj se na všecko rozpomněl. Petruška mu otevřel dvířka. Pana Goljadkina ovládl jakýsi podivný, nanejvýš nepříjemný pocit. Na okamžik zrudl. Cosi ho píchlo. Už už zvedal nohu, aby si stoupl na stupátko kočáru, ale náhle se otočil a zadíval se do doktorových oken. Taky že ano! Doktor stál u okna, hladil si pravačkou kníry a zvědavě shlížel dolů na našeho hrdinu.
 
 Doktor je hňup, pomyslel si pan Goljadkin a vmáčkl se do kočáru, strašlivý hňup! Možná že úspěšně léčí svoje pacienty, ale přesto je hloupý jako poleno. Pan Goljadkin se pohodlně usadil, Petruška křikl „Jeď!“ a kočár znovu vyrazil směrem k Něvské třídě.
+
+</section>

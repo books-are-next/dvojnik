@@ -3,6 +3,8 @@ title: ''
 contentType: prose
 ---
 
+<section>
+
 Znění tohoto textu vychází z díla [Dvojník](https://search.mlp.cz/cz/titul/dvojnik/3989150/) tak, jak bylo vydáno nakladatelstvím Rybka Publishers v Praze v roce 2013. Pro potřeby vydání Městské knihovny v Praze byl text redakčně zpracován.
 
 **§**
@@ -15,6 +17,10 @@ Vydání (obálka, upoutávka, citační stránka a grafická úprava), jehož a
 
 Verze 1.0 z 29. 1. 2019.
 
-  
+</section>
+
+<section>
 
 ![image002.jpg](./resources/image002_fmt.png)
+
+</section>

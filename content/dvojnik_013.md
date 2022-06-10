@@ -3,6 +3,8 @@ title: '9'
 contentType: prose
 ---
 
+<section>
+
 Podle všeho se celý svět, dokonce i sama příroda, proti němu spikly. Ale ještě se držel na nohou a nebyl poražen, to jasně cítil. Byl připraven bojovat. Zamnul si ruce tak významně a důkladně, že už jen z jeho výrazu se dalo vyčíst, že neustoupí. Ostatně nebezpečí číhalo blízko, hned za rohem, a náš pan Goljadkin si to dobře uvědomoval, ale nevěděl, jak mu čelit. Na okamžik se mu mihla hlavou myšlenka, zda by se neměl tvářit jakoby nic a nade vším mávnout rukou, prostě ustoupit… Co by se stalo? Vůbec nic. Budu stát stranou, jako bych to nebyl já, přemítal, a nechám všemu volný průběh; jednoduše to nejsem já a basta, a on si taky půjde svou cestou a třeba ustoupí. Vyřádí se, lotr, bude se ošívat a nakonec couvne. Tak je to! Zvítězím tak, že se poddám. Kde je nebezpečí? Jaképak nebezpečí! Jen ať mi je někdo ukáže! Taková prkotina… Vtom se zarazil a slova mu uvízla na jazyku: dokonce se za tu myšlenku pokáral, vyčetl si, že je sketa, zbabělec, ale tím ničemu nepomohl. Cítil, že by se měl okamžitě nějak rozhodnout, dokonce si byl jistý, že by dal nevímco za to, kdyby mu někdo poradil, co má udělat. No ano, jak to má uhodnout? Ostatně, na hádání nezbyl čas. Pro každý případ, aby neztrácel ani chvilku, najal si drožku a hnal se domů. Tak co, jak se cítíš? ptal se sám sebe v duchu. Jak se ráčíte cítit, Jakove Petroviči? Co uděláte? Co teď, v tuhle chvíli, uděláš, ty kujóne, ty holomku? Dospěl jsi ke konci a teď fňukáš! Tak se popichoval, zatímco se vytřásal v drožkářově kodrcavé bryčce. Popichovat se, jitřit vlastní rány mu v té chvíli působilo nesmírné potěšení, ba přímo rozkoš. Kdyby se kupříkladu teď, rozvažoval, objevil nějaký kouzelník, nebo kdyby mi oficiálně navrhli: „Věnuj nám palec pravé ruky, Goljadkine, a jsme vyrovnáni: druhý Goljadkin zmizí a ty budeš šťastný, jenomže bez palce“, dal bych si ten palec uříznout, ano, ani bych nemrkl. „Aby to čert vzal!“ vykřikl nakonec zoufalý titulární rada, „proč tohle všecko? Měl jsem tohle zapotřebí? A právě takovéhle patálie! Jako by nemohlo být něco jiného… Zpočátku šlo všecko jako po másle, všichni byli spokojení a šťastní a najednou – tumáš! Bylo to zapotřebí? Ale řečmi se nic nespraví. Je nutné jednat.“
 
 A tak, rozhodnutý jednat, vešel do svého bytu, pohotově popadl dýmku, z plných plic zabafal, až se na všecky strany rozlétly chuchvalce kouře, a krajně rozrušeně pobíhal sem a tam po pokoji. Petruška mezitím prostíral. Konečně se pan Goljadkin definitivně rozhodl, odhodil dýmku, navlékl si plášť, oznámil, že nebude obědvat doma, a vyběhl z bytu. Udýchaný Petruška ho dohonil na schodech a držel v rukách pánův zapomenutý klobouk. Pan Goljadkin uchopil klobouk, a aby se v Petruškových očích trochu ospravedlnil, aby si Petruška nepomyslel něco jako – že jde o tak závažnou věc, až pán zapomněl klobouk a podobně –, ale Petruška se na něj ani nepodíval a hned se ztratil. Náš hrdina si bez dalšího vysvětlování narazil klobouk, seběhl po schodech a ustavičně si opakoval, že to všecko možná spěje k lepšímu a že všecko se nějak urovná, když cítil, jak mu běhají mravenci po zádech. Vyšel na ulici, najal si drožkáře a uháněl k Andreji Filipoviči. A vůbec, nebylo by lepší odložit to na zítra? napadlo ho, zatímco se chystal zatáhnout za šňůru zvonku u dveří bytu Andreje Filipoviče, a co tak zvláštního mu povím? Na celé té věci není nic zvláštního. Celá ta záležitost nestojí ani za řeč, je to prkotina, ano, ano, totiž skoro prkotina… A všecko kolem jakby­smet… Zatahal za šňůru zvonku, ten se rozezněl a uvnitř se ozvaly čísi kroky… Náš pan Goljadkin se proklínal za svou ukvapenost a troufalost. Vybavil si nedávné nepříjemnosti, na něž málem vinou všech dalších událostí zapomněl, na střet s Andrejem Filipovičem. Ale na útěk už bylo pozdě: dveře se otevřely. Naštěstí se dozvěděl, že Andrej Filipovič se doposud nevrátil z úřadu a že neobědvá doma. Vím, kde obědvá, u Izmajlovského mostu, blesklo našemu hrdinovi hlavou a zaradoval se. Na sluhovu otázku, co má vyřídit, odtušil: „Dobrá, příteli, přijdu později,“ a skoro rozjařeně seběhl po schodišti. Vyšel na ulici a rozhodl se, že propustí drožku a vyrovná se s drožkářem. Když drožkář požádal o přídavek – prý čekal jsem hodnou chvíli, milostpane, a nelitoval jsem pro vaši milost svýho klusáka –, vyplatil mu ochotně, co požadoval, navíc přidal pětník a sám se vydal pěšky.
@@ -27,7 +29,9 @@ Pan Goljadkin byl ohromený. Co je to za čarodějnické kejkle? pomyslel si. Za
 
 Tohle všecko si v duchu říkal, když sbíhal ze schodů. Na posledním schodu se zastavil jako uhranutý a zrudl tak, až mu vhrkly do očí slzy. Tak stál, zasažený urážkou vlastní důstojnosti, pak energicky přidupl, jedním skokem vyrazil na ulici a bez dechu, nedbaje na únavu, uháněl k domovu, do Šestikrámské ulice. Navzdory svému zvyku chodit podomácku se doma ani nesvlékl, nesáhl po dýmce, těžce dopadl na pohovku, přitáhl si kalamář, uchopil pero, vytáhl dopisní papír a rozčileně, rozechvělou rukou začal psát následující řádky:
 
-  
+</section>
+
+<section>
 
 > „Vážený pane Jakove Petroviči!
 
@@ -165,7 +169,9 @@ Tak usuzoval, zatímco seděl na pohovce a bál se pohnout. Náhle jeho zrak sp
 
 Dopis byl následující:
 
-  
+</section>
+
+<section>
 
 > „Vážený pane Jakove Petroviči!!
 
@@ -186,7 +192,9 @@ Já sám bych měl co nejdřív zahájit protiútok, předběhnout je, miláčky
 
 Přisunul si papír, uchopil pero a napsal následující odpověď na dopis gubernského tajemníka Vachramejeva:
 
-  
+</section>
+
+<section>
 
 > „Vážený pane Nestore Ignaťjeviči!
 
@@ -196,3 +204,5 @@ Přisunul si papír, uchopil pero a napsal následující odpověď na dopis gu
 
 > V každém případě zůstávám Váš oddaný služebník.  
 > J. Goljadkin“
+
+</section>

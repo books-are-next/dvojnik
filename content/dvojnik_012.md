@@ -3,6 +3,8 @@ title: '8'
 contentType: prose
 ---
 
+<section>
+
 Jako obvykle se nazítří probudil v osm hodin a okamžitě si vybavil všecko, co se včera večer událo – všecko si vybavil a zamračil se. Včera jsem ze sebe udělal osla!, usoudil v duchu, zvedl se na posteli a zašilhal na lůžko svého hosta. Ale k svému velkému překvapení neuviděl hosta ani lůžko! „Co to znamená?“ skoro vykřikl. Co má znamenat tahle novinka? Mezitím co nechápavě, s otevřenými ústy hleděl na uprázdněné místo, vrzly dveře a vešel Petruška s podnosem. „Kde je, kde je?“ zakníkal náš hrdina a ukázal na místo vyhrazené pro hosta. Petruška nejprve neodpověděl, dokonce mu nevěnoval ani pohled, ale zabloudil očima jinam a pan Goljadkin ho chtě nechtě napodobil. Po chvilce mlčení sluha chraplavým hrubým hlasem vysvědoval, že pán není doma.
 
 „Troubo! Já jsem tvůj pán!“ přerušil ho zajíkavě pan Goljadkin a vykulil na něj oči.
@@ -140,3 +142,5 @@ Náš hrdina zlostí oněměl.
 „Já ano, prosím… Ale uznejte, vážený pane, ta vaše hra je krajně zamotaná…“
 
 „Kdo to tvrdí? To tvrdí moji nepřátelé,“ odsekl ten, co si říkal Goljadkin, a nečekaně se vyprostil ze sevření slabých rukou pravého pana Goljadkina. Pak seběhl ze schodů, rozhlédl se napravo, nalevo, a když uviděl drožkáře, uháněl k němu, vsedl do drožky a zakrátko zmizel našemu panu Goljadkinovi z očí. Zoufalý titulární rada, všemi opuštěný, pátral po drožkáři, ale marně. Pokoušel se utíkat, ale nohy mu podklesávaly. Hlavu sklopenou, s otevřenými ústy, schoulený, zdrcený se bezmocně opřel o pouliční svítilnu a chvilku zůstal stát uprostřed chodníku. Měl pocit, že je všecko ztraceno…
+
+</section>
